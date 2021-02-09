@@ -1,1 +1,1 @@
-My name is Illana. I'm 19 years old, I'm a second year student of Information Systems at the Suleyman Demirel University. I love to eat and sleep, also I love to read books at the free time. I want to be a programmer. I was born in Atyrau. Atyrau is the oil capital of Kazakhstan.
+My name is Illana. I'm 19 years old, I'm a second year student of Information Systems at the Suleyman Demirel University. I love to eat and sleep, also I love to read books at the free time. I want to be a programmer. I was born in Atyrau. Atyrau is the oil capital of Kazakhstan. That's all.
